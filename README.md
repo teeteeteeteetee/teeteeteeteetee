@@ -5,11 +5,11 @@ I'm a (self taught) student/dev doing lots of "cool" stuff heh.. Knowing myself 
 I'm CURRENTLY using mainly Windows and Linux(Ubuntu) for managing servers. These are my current languages that I have taught myself: C#, JavaScript, HTML, CSS and little bit of Java... // if that's somewhat interesting
 
 Anyways here are some of my website pages/profiles:
-- https://loli.support/
-- https://emotes.loli.support/
-- https://twitter.com/loli_tee/
-- https://twitch.tv/loli_tee
-- https://osu.ppy.sh/users/Tee
+- https://loli.support/ // My website
+- https://emotes.loli.support/ // My website for my emote servers on Discord
+- https://twitter.com/loli_tee/ // Twitter
+- https://twitch.tv/loli_tee // Twitch
+- https://osu.ppy.sh/users/Tee // osu!
 - Discord: Tee#0001
 
 
