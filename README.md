@@ -6,6 +6,8 @@ I'm CURRENTLY using mainly Windows and Linux(Ubuntu) for managing servers.
 
 Current languages that I have taught myself: C#, JavaScript, HTML, CSS and little bit of Java... // if that's somewhat interesting
 
+[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=Tee&theme=dracula)](https://github.com/anuraghazra/github-readme-stats)
+
 Anyways here are some of my website pages/profiles:
 - https://loli.support/ // My website
 - https://emotes.loli.support/ // My website for my emote servers on Discord
