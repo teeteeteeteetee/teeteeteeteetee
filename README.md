@@ -2,7 +2,9 @@
 
 I'm a (self taught) student/dev doing lots of "cool" stuff heh.. Knowing myself I shouldn't really go into details, but I'm trying my best to be really good at this thing if I'm being honest with myself, *but i suck at them lol*. I'm "really" great at Discord related stuff in Javascript and I also do back/front development for websites. Currently I'm still trying to learn C# from online resources that are publicly available on the internet, but since I'm a disgusting lazy subhuman being I literally can't get into it lol. // I would be glad if someone taught me C# into details...
 
-I'm CURRENTLY using mainly Windows and Linux(Ubuntu) for managing servers. These are my current languages that I have taught myself: C#, JavaScript, HTML, CSS and little bit of Java... // if that's somewhat interesting
+I'm CURRENTLY using mainly Windows and Linux(Ubuntu) for managing servers.
+
+Current languages that I have taught myself: C#, JavaScript, HTML, CSS and little bit of Java... // if that's somewhat interesting
 
 Anyways here are some of my website pages/profiles:
 - https://loli.support/ // My website
