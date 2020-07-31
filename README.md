@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hey there, I'm Tee :flushed::point_right::point_left:
 
 <!--
 **lolitee/lolitee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
