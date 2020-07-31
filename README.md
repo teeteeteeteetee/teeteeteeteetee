@@ -1,6 +1,6 @@
-### Hey there, I'm Tee :flushed::point_right::point_left:
+### Hey there, I'm Martin, but people call me Tee on the internet :flushed::point_right::point_left:
 
-I'm a student/dev doing lots of "cool" stuff heh.. Knowing myself I shouldn't really go into details, but I'm trying my best to be really good at this thing if I'm being honest with myself. I'm "really" great at Discord related stuff in Javascript and I also do back/front end in website side of development.
+I'm a student/dev doing lots of "cool" stuff heh.. Knowing myself I shouldn't really go into details, but I'm trying my best to be really good at this thing if I'm being honest with myself. I'm "really" great at Discord related stuff in Javascript and I also do back/front development for websites.
 
 
 <!--
