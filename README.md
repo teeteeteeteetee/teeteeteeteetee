@@ -4,7 +4,7 @@
 - https://twitch.tv/loli_tee // Twitch
 - https://osu.ppy.sh/users/Tee // osu!
 - Discord: Tee#0001
-
+C++ C# js dev
 
 <!--
 **lolitee/lolitee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
