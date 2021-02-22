@@ -5,7 +5,7 @@
 - https://osu.ppy.sh/users/Tee // osu!
 - Discord: Tee#0001
 
-C++ C# js dev
+C++ C# js php dev css html
 
 <!--
 **lolitee/lolitee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
