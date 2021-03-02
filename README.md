@@ -6,6 +6,7 @@
 - Discord: Tee#0001
 
 C++ C# js php dev css html
+currently im still learning c++, go
 
 <!--
 **lolitee/lolitee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
