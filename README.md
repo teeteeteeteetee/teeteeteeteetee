@@ -5,7 +5,7 @@
 - https://osu.ppy.sh/users/Tee // osu!
 - Discord: Tee#0001
 
-C++ C# js php dev css html
+C++ C# java js php css html
 
 currently im still learning c++, go
 
