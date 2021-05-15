@@ -13,7 +13,9 @@ school gives me 0 motivations to do coding
 
 donate here:
 BTC: 34KCmJbwRgMTkcHt4VfitH2BLkdHejeQBX
+
 LTC: MMxQ9y5JYpR4GjVjCYgAgZTNA6rokGqnan
+
 ETH: 0x0bfc94dB9200f713eb96Feb2960393f5BC9b37E7
 
 ![uhh ye](https://github-readme-stats.vercel.app/api/top-langs/?username=lolitee&layout=compact&theme=material-palenight)
