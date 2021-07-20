@@ -9,7 +9,7 @@ C++ C# java js php css html
 
 currently im still learning c++, go
 
-school gives me 0 motivations to do coding
+school gives me 0 motivations to do coding and i hate javascript
 
 donate here:\
 BTC: 34KCmJbwRgMTkcHt4VfitH2BLkdHejeQBX \
