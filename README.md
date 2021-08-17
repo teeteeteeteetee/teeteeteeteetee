@@ -1,4 +1,4 @@
-- https://loli.support/ // My website
+- https://loli.support/ https://stainless.love/ // My website
 - https://emotes.loli.support/ // My website for my emote servers on Discord
 - https://twitter.com/loli_tee/ // Twitter
 - https://twitch.tv/loli_tee // Twitch
