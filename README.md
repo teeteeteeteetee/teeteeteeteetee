@@ -1,3 +1,5 @@
+# im busy right now will return on 30th
+
 - https://loli.support/ https://stainless.love/ // My website
 - https://emotes.loli.support/ // My website for my emote servers on Discord
 - https://twitter.com/loli_tee/ // Twitter
