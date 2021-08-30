@@ -1,4 +1,4 @@
-# im busy right now will return on 30th
+# im busy right now will return on 31st due to school
 
 - https://loli.support/ https://stainless.love/ // My website
 - https://emotes.loli.support/ // My website for my emote servers on Discord
