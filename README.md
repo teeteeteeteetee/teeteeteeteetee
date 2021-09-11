@@ -1,8 +1,8 @@
-- https://loli.support/ https://stainless.love/ // My website
+- https://loli.support/ https://stainless.love/ // My websites
 - https://emotes.loli.support/ // My website for my emote servers on Discord
 - https://twitter.com/loli_tee/ // Twitter
 - https://twitch.tv/loli_tee // Twitch
-- https://osu.ppy.sh/users/Tee // osu!
+<!-- - https://osu.ppy.sh/users/Tee // osu! -->
 - Discord: Tee#0001
 
 C++ C# java js php css html
