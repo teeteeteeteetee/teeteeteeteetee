@@ -7,7 +7,7 @@
 
 C++ C# java js php css html python go
 
-currently im still learning c++, go
+currently im still learning c++
 
 school gives me 0 motivations to do coding and i hate javascript
 
