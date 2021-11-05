@@ -1,4 +1,4 @@
-im busy with school sry about it
+im busy with school and got lots of issues personally sry if im inactive with my projects
 
 - https://loli.support/ https://stainless.love/ // My websites
 - https://emotes.loli.support/ // My website for my emote servers on Discord
