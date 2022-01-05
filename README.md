@@ -1,5 +1,3 @@
-gone for 3 days for christmas after that ill update some of my projects
-
 - https://loli.support/ https://stainless.love/ // My websites
 - https://emotes.loli.support/ // My website for my emote servers on Discord
 - https://twitter.com/loli_tee/ // Twitter
