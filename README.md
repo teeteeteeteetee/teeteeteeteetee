@@ -1,3 +1,5 @@
+im really busy this year sorry about it
+
 - https://loli.support/ https://stainless.love/ // My websites
 - https://emotes.loli.support/ // My website for my emote servers on Discord
 - https://twitter.com/loli_tee/ // Twitter
