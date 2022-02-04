@@ -13,6 +13,8 @@ currently im still learning c++
 
 school gives me 0 motivations to do coding and i hate javascript
 
+i suck at css and front end
+
 donate here:\
 BTC: 34KCmJbwRgMTkcHt4VfitH2BLkdHejeQBX \
 LTC: MMxQ9y5JYpR4GjVjCYgAgZTNA6rokGqnan \
