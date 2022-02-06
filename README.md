@@ -9,9 +9,7 @@ im really busy this year sorry about it
 
 C++ C# java js php css html python go
 
-currently im still learning c++
-
-school gives me 0 motivations to do coding and i hate javascript
+certified network engineer, developer and cat owner
 
 i suck at css and front end
 
