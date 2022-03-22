@@ -9,7 +9,7 @@ im really busy this year sorry about it
 self taught dev
 C++ C# java js php css html python golang
 
-certified network engineer, developer and cat owner
+certified network engineer, developer, linux user and cat owner
 
 i suck at css and front end and i code cheats in c++ 🤓🤓🤓🤓🤓🤓🤓🤓
 
