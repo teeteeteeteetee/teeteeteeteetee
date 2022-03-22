@@ -4,7 +4,6 @@ im really busy this year sorry about it
 - https://emotes.loli.support/ // My website for my emote servers on Discord
 - https://twitter.com/loli_tee/ // Twitter
 - https://twitch.tv/loli_tee // Twitch
-- https://stainless.love
 <!-- - https://osu.ppy.sh/users/Tee // osu! -->
 - Discord: Tee#0001
 
