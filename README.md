@@ -4,14 +4,17 @@ im really busy this year sorry about it
 - https://emotes.loli.support/ // My website for my emote servers on Discord
 - https://twitter.com/loli_tee/ // Twitter
 - https://twitch.tv/loli_tee // Twitch
+- https://stainless.love
 <!-- - https://osu.ppy.sh/users/Tee // osu! -->
 - Discord: Tee#0001
 
-C++ C# java js php css html python go
+self taught dev
+C++ C# java js php css html python golang
 
 certified network engineer, developer and cat owner
 
 i suck at css and front end
+i code cheats for fun
 
 donate here:\
 BTC: 34KCmJbwRgMTkcHt4VfitH2BLkdHejeQBX \
