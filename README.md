@@ -12,8 +12,7 @@ C++ C# java js php css html python golang
 
 certified network engineer, developer and cat owner
 
-i suck at css and front end \
-i code cheats in c++ 🤓🤓🤓🤓🤓🤓🤓🤓
+i suck at css and front end and i code cheats in c++ 🤓🤓🤓🤓🤓🤓🤓🤓
 
 donate here:\
 BTC: 34KCmJbwRgMTkcHt4VfitH2BLkdHejeQBX \
