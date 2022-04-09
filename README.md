@@ -1,4 +1,4 @@
-im really busy this year sorry about it
+im really busy this year till like march i believe sorry about it
 
 - https://loli.support/ https://stainless.love/ // My websites
 - https://twitter.com/loli_tee/ // Twitter
