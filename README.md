@@ -1,5 +1,3 @@
-im really busy this year till like march i believe sorry about it
-
 - https://loli.support/ https://stainless.love/ // My websites
 - https://twitter.com/loli_tee/ // Twitter
 - https://twitch.tv/loli_tee // Twitch
