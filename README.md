@@ -1,4 +1,4 @@
-im not coding that much atm do to some of my health issues
+im not coding that much atm due to some of my health issues
 
 - https://loli.support/ https://stainless.love/ // My websites
 - https://twitter.com/loli_tee/ // Twitter
