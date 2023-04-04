@@ -1,4 +1,4 @@
-im not coding that much atm due to some of my health issues
+busy with school till next month
 
 - https://loli.support/ https://stainless.love/ // My websites
 - https://twitter.com/loli_tee/ // Twitter
