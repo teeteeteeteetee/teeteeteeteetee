@@ -1,8 +1,6 @@
-busy with school till next month
+- https://stainless.love/ https://demon.cat // My websites
+- https://twitter.com/555tee666/ // Twitter
 
-- https://loli.support/ https://stainless.love/ // My websites
-- https://twitter.com/loli_tee/ // Twitter
-- https://twitch.tv/loli_tee // Twitch
 <!-- - https://osu.ppy.sh/users/Tee // osu! -->
 - Discord: Tee#0001
 
