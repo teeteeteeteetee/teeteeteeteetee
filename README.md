@@ -1,35 +1,51 @@
 ![ye](https://media.tenor.com/O72YDGMTGVUAAAAM/cat-breakdancing.gif)
 
-  XDAWKJNLKLJNAKJNLDAJKNLFNSRJAILRGBHK ABLIAILJBAEFW LIAGES LKHUJA WEFLOHKUAEGWLHKUAGWESKLHJAGWESKLJASERGBKLJHSD VNG
-  ASRD'ML'G AESMLAS EGWRML GAESML;A EGWS
-  M AEGWM
-  LEGA 
-  ML' AGSM
-  LAGE WS
-  ML'GA EWSM
-  L'AGE SM
-  L'GA EWML'
-  G AEWML'
-   GAEWM
-   'LG AEW
-   MGL'AE W B
-   K;MLGRBMSKNTSHTE RBKM BHSET5
-   KNMP HSREA
+  XDAWKJNLKLJNAKJNLDAJKNLFNSRJAILRGBHK ABLIAILJBAEFW LIAGES LKHUJA WEFLOHKUAEGWLHKUAGWESKLHJAGWESKLJASERGBKLJHSD VNG \
+  ASRD'ML'G AESMLAS EGWRML GAESML;A EGWS \
+  M AEGWM \
+  LEGA  \ 
+  ML' AGSM \
+  LAGE WS \
+  ML'GA EWSM \
+  L'AGE SM \ 
+  L'GA EWML'\ \
+  G AEWML' \\
+   GAEWM 
+   'LG AE\ W
+   MGL'AE W\\ B
+   K;MLGRBMSK \NTSHTE RBKM BHSET5
+   KNMP HSREA \
    NK;MHSR E
-   MLHERT SA
-   MK;SH ER
-   M;H SER
-   MLH SRE
-   ML;HRSEM
-   L;HRAE
-   ML;HRSE M'KL;
-   HARE M
-   AHL[ERWHM
+   MLHERT SA\ \
+   MK;SH ER 
+   M;H SER\\
+   MLH SRE\
+   ML;HRSEM 
+   L;HRAE\
+   ML;HRSE\  M'KL;
+   HARE M\\
+   AHL[ERWH \M
    LR'AE;HAR
-   WML'HAWR
-   ,L';HRAW,
-   ;']
-
+   WML'HAWR\ \
+   ,L';HRAW, \
+   ;'] \ \
+    D\
+    ,W \,A'
+    ;\
+    D,';W\ \
+    ,;[.\dq.[]\
+     \' 
+     awf,. \a,\.[
+     fwa\\
+     ,.f aw \,\.wfa\,[f aw,\
+     faw\,\
+      faw\,[ \
+      eg ,[\ s,\\
+      [rgs,\[ graw\ se[\,agh].s5he ,p]
+      5n erd;5\\ \h,]4peh5w]
+      ,h5we,] 
+      h r\ \ \\
+\
 - https://stainless.love/ https://demon.cat // My websites
 - https://twitter.com/555tee666/ // Twitter
 
